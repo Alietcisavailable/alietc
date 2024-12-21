@@ -1,0 +1,2 @@
+![[IMG_1685.jpeg]]
+Rogue police officer, and member of the Gorilas, on secondment from the United States. Likes to ride a motorbike and use his status as a police officer to abuse people especially the Orangutans.
